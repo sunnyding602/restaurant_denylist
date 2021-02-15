@@ -5,7 +5,7 @@
 2. 土豆烧排骨 (太油太辣)
 ## NextDish
 1. ALL
-## Red Hot Wok
+## Fashion Wok
 1. 小锅米线 (太酸)
 ## Uzumakiya Udon Izakaya
 1. ALL (Udon太咸了)
