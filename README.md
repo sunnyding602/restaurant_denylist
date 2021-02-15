@@ -7,3 +7,5 @@
 1. ALL
 ## Red Hot Wok
 1. 小锅米线 (太酸)
+## Uzumakiya Udon Izakaya
+1. ALL (Udon太咸了)
