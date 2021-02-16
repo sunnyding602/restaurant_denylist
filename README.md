@@ -9,3 +9,5 @@
 1. 小锅米线 (太酸)
 ## Uzumakiya Udon Izakaya
 1. ALL (Udon太咸了)
+## Chicken Meet Rice (海南鸡饭)
+1. ALL (不太合口味, 米饭还行)
