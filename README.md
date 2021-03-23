@@ -13,3 +13,5 @@
 1. ALL (不太合口味, 米饭还行)
 ## Hankow Cuisine (一品香)
 1. ALL (吃了起痘)
+## Gyu-Kaku Japanese BBQ (牛角)
+1. ALL (外卖不用心...)
