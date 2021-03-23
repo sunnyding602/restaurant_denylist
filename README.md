@@ -11,3 +11,5 @@
 1. ALL (Udon太咸了)
 ## Chicken Meet Rice (海南鸡饭)
 1. ALL (不太合口味, 米饭还行)
+## Hankow Cuisine (一品香)
+1. ALL (吃了起痘)
